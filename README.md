@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Dimigun
+- 👋 Hi, I’m @Dimi
 - 👀 I’m interested in CG
 🌱 I’m currently learning to color grade
 - 💞️ I’m looking to collaborate on intersting projects
